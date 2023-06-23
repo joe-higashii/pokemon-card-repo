@@ -1,0 +1,1 @@
+https://joe-higashii.github.io/pokemon-card-repo/
